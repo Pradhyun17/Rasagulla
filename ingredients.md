@@ -1,0 +1,7 @@
+- 2 litre milk
+- 3 cup water
+- 11/2 cup sugar
+- 1 tableSpoon all purpose flour
+- 1 tableSpoon rose water
+- 3 tableSpoon lime juice
+- 2 teaSpoon powdered green cardamom
